@@ -5,5 +5,6 @@
   ##  pronouns
   #### he / she / they / it
 
-<img width="148" height="200" alt="image" src="https://github.com/user-attachments/assets/7d1186ef-ee53-4953-8180-fac4fc6fe9a0" />
+<img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/debe0267-c97f-463d-ba2f-9204a9853fe7" />
+
 
