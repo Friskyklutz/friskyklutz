@@ -2,7 +2,7 @@
 
 ## hello!!!! welcom to my profil!!
 # ────୨ৎ────
-##    pronouns
+##  pronouns
 #### he / she / they / it
 
 
