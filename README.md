@@ -1,8 +1,8 @@
 # ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-## hello!!!! welcom to my profil!!
+  ## hello!!!! welcom to my profil!!
 # ────୨ৎ────
-##  pronouns
-#### he / she / they / it
+  ##  pronouns
+  #### he / she / they / it
 
 
