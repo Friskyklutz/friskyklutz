@@ -1,10 +1,9 @@
 # ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-### hello!!!! im frisk!!
 
-<!--
-**friskyklutz/friskyklutz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## hello!!!! welcom to my profil!!
 
-Here are some ideas to get you started:
+#### hi
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
