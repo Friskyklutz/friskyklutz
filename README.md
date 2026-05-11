@@ -3,7 +3,7 @@
   ## hello!!!! welcom to my profil!!
 # ────୨ৎ────
   ##  pronouns
-  #### he / she / they / it
+  #### he / they / it
 # ────୨ৎ────
 ## about me
   #### i kin frisk , can be from any au. i just really kin frisk. fictkin i say..i kin them HAARD..doubles. pls dni.
